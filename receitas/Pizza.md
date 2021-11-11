@@ -34,23 +34,3 @@
 2. Sove a massa novamente e divida-a ao meio. Abra cada metade com o rolo sobre uma superfície enfarinhada até obter 2 discos de 30 cm de diâmetro.
 3. Disponha cada disco em fôrma de pizza untada, dobre uma pequena borda em cada um e salpique-as com o gergelim. Leve ao forno alto preaquecido (220 ºC) por 10 minutos.
 4. Espalhe o molho de tomate sobre os discos pré-assados e distribua o palmito, o brócoli e o tomate. Polvilhe com sal e alecrim a gosto e cubra com a muçarela. Regue com o azeite e leve de volta ao forno por mais uns 10 minutos.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
--
